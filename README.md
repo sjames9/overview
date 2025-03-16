@@ -16,6 +16,7 @@ MBA with a specialization in Finance & Operations | Advancing my expertise in Da
 🔍 Check out my latest projects on GitHub:
 👉 Atliq Grands Hospitality Analytics
 
+
 ⚡ Fun Fact
 I have a strong background in hockey 🏑 and now I’m leveraging my analytical skills to break down data-driven insights just like I break through defenses on the field!
 
